@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Diddydonkey
+- 👀 I’m interested in ... sport AI's 
+- 🌱 I’m currently learning ... and a slow learner at that! but i wont stop!!
